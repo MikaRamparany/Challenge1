@@ -1,7 +1,7 @@
 # Mika RAMPARANY
 ## *29 ans / Strasbourg*
 
-### *Pour me présenter en quelques lignes* : 
+### _Pour me présenter en quelques lignes_ : 
 
 
 
